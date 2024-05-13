@@ -1,2 +1,0 @@
-# sunyinhua
-sunyinhua's blog
